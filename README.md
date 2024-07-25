@@ -28,9 +28,6 @@ Nepal's challenging terrain and unpredictable weather conditions have historical
 #### Conclusion
 The Nepal plane crash and the viral video serve as a sobering reminder of the importance of aviation safety. As investigations continue, it is hoped that the lessons learned from this tragedy will lead to enhanced safety protocols and prevent similar incidents in the future.
 
-¹: [Fox Business](ht
-
-If you have any other topics you'd like to explore, feel free to let me know. 😊
 
 Source: Conversatio https://www.foxbusiness.com/economy/plane-explosion-nepal-captured-shocking-video-18-dead-1-survivor.
 (2) Nepal Plane Crash: Pilot ‘Sole Survivor’ Pulled from Deadly Kathmandu Airport Plane Crash. https://www.india.com/video-gallery/nepal-plane-crash-pilot-sole-survivor-pulled-from-deadly-kathmandu-airport-plane-crash-7114048/.
